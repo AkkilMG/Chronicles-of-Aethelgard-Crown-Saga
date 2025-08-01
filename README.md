@@ -1,1 +1,1 @@
-# Chronicles-of-Aethelgard-Crown-Saga
+# Chronicles of Aethelgard: Crown Saga
